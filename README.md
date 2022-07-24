@@ -1,0 +1,2 @@
+# Hozan-krd
+Şehîdê îxanetê
